@@ -1,2 +1,0 @@
-# Intellectual-prprty-
-Theft
